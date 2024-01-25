@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Katanangallah from makindi
+- 👋 Hi, I’m @Katanangallah from malindi
 - 👀 I’m interested in ...power learn project 
 - 🌱 I’m currently learning ...in kakuyuni boys high school 
 - 💞️ I’m looking to collaborate on ...this project
